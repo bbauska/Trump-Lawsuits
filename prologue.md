@@ -25,4 +25,14 @@ While the landmark Department of Justice racial discrimination lawsuit against F
   - In December 1950, legendary folk singer Woody Guthrie signed a lease and moved into the Beach Haven apartments.
   - Appalled by the total lack of minority tenants and the overt segregation within Fred Trump's properties, Guthrie wrote an unrecorded song in 1954 titled "Old Man Trump," accusing his landlord of drawing a "color line" and actively stirring up racial hatred.
 
+--
+Other complaints against Trump
+In 1988, the Justice Department sued Trump for violating procedures related to public notifications when buying voting stock in a company related to his attempted takeovers of Holiday Corporation and Bally Manufacturing Corporation in 1986. Trump agreed to pay $750,000 to settle the civil penalties of the antitrust lawsuit.[30]
+
+In 2016, the American Bar Association (ABA) commissioned a report to highlight Trump's excess litigation, entitled "Donald J. Trump is a Libel Bully but also a Libel Loser", but initially declined to publish it fearing being sued by Trump.[31][32][33]
+
+In 2001, the U.S. Securities and Exchange Commission brought a financial-reporting case against Trump Hotels & Casino Resorts Inc., alleging that the company had committed several "misleading statements in the company's third-quarter 1999 earnings release". Trump Hotels & Casino Resorts Inc. consented to the commission's cease-and-desist order, said the culprit had been dismissed, and that Trump had personally been unaware of the matter.[34][35][36]
+
+Trump complaints against his own administration
+Before becoming president a second time, Trump filed claim against the Department of Justice, asking for $230 million to compensate him for the FBI investigation that found official and classified documents at Mar-a-Lago. In 2026, he filed a lawsuit against his own Department of the Treasury, asking for $10 billion in compensation for a leak of his tax returns during his first term.[37]
 
