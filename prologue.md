@@ -1,5 +1,5 @@
 # How Trump Survived Decades of Legal Trouble:<br>Deny, Deflect, Delay, and Don't Put Anything in Writing
-
+From 1973 and until he was elected president in 2016, Donald Trump and his businesses were involved in over 4,000 legal cases in United States federal and state courts, including battles with casino patrons, million-dollar real estate lawsuits, personal defamation lawsuits, and over 100 business tax disputes.[1] He has also been accused of sexual harassment and sexual assault,[2][3] with one accusation resulting in him being held civilly liable.
 It was 1973 and the Justice Department had just filed a civil rights lawsuit against Trump and his father Fred Trump. The complaint alleged that the Trumps and their company, which managed some 14,000 apartments in Queens, Brooklyn and Staten Island, had violated the Fair Housing Act by systematically flagging the applications of Black renters and steering them away from available units.
 
 
