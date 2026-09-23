@@ -1,4 +1,4 @@
-# How Trump Survived Decades of Legal Trouble: Deny, Deflect, Delay, and Don't Put Anything in Writing
+# How Trump Survived Decades of Legal Trouble:<br>Deny, Deflect, Delay, and Don't Put Anything in Writing
 
 It was 1973 and the Justice Department had just filed a civil rights lawsuit against Trump and his father Fred Trump. The complaint alleged that the Trumps and their company, which managed some 14,000 apartments in Queens, Brooklyn and Staten Island, had violated the Fair Housing Act by systematically flagging the applications of Black renters and steering them away from available units.
 
